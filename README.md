@@ -1,1 +1,1 @@
-UNDER DEVELOPMENT :)
+Getting ready for minting!!!
